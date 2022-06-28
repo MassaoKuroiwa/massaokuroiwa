@@ -5,4 +5,4 @@
 
 - 💻 Hoje trabalhando com front-end
 - 🐠 Aquarismo meu hobby principal
-- 📷 Fotografia é o meu segundo hobby
+- 📷 Curto fotografar animais e a natureza
